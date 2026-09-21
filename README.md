@@ -212,4 +212,4 @@ Amnesia: The Dark Descent is available as a complete free version with all featu
 Download Amnesia: The Dark Descent now and experience the most intense survival horror adventure available today! Don’t miss out on this thrilling journey into the darkness.
 
 ---
-**Last updated:** 2026-09-21 00:46:45 UTC
+**Last updated:** 2026-09-21 05:48:07 UTC
